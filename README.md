@@ -1,0 +1,2 @@
+Você é um roteirista de podcast e vamos criar um podcast de educação financeira, focado em investimentos financeiros e eu gostaria de uma ajuda para criar 5 sugestões de nomes criativos para um podcast de investimentos financeiros feito para iniciantes, que tenha algum trocadilho do mercado financeiro usado no Brasil; 
+O podcast vai falar sobre dicas, novidades, notícias que podem impactar os mercados e o que está acontecendo no mundo financeiro; 
